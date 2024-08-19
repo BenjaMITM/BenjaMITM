@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @BenjaMITM
+- 👀 I’m interested in Cybersecurity and AI, Along with alot of various other things
+- 🌱 I’m currently going for my bachelors in Cybersecurity
+- 💞️ I’m looking to collaborate on Anything that falls in line with my interests
+- 📫 How to reach me email is fine
+- 😄 Pronouns: He,Him,His
+- ⚡ Fun fact: Facts shouldn't be fun, they should be factual. Also I like psychology
